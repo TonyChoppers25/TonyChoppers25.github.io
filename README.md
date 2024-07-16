@@ -3,3 +3,5 @@
 - [https://www.youtube.com/@TonyChoppers25](https://www.youtube.com/@TonyChoppers25)
 - [https://medium.com/@TonyChoppers25](https://medium.com/@TonyChoppers25)
 - [https://tonychoppers25.quora.com/](https://tonychoppers25.quora.com/)
+- [https://youtu.be/pVoISPG-qLM](https://youtu.be/pVoISPG-qLM)
+- [https://tonychoppers25.quora.com/What-are-the-key-factors-contributing-to-the-projected-growth-of-global-gaming-revenue-to-300-billion-by-2027](https://tonychoppers25.quora.com/What-are-the-key-factors-contributing-to-the-projected-growth-of-global-gaming-revenue-to-300-billion-by-2027)
