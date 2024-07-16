@@ -1,0 +1,5 @@
+- [https://www.reddit.com/user/TonyChoppers25/](https://www.reddit.com/user/TonyChoppers25/)
+- [https://x.com/TonyChoppers25](https://x.com/TonyChoppers25)
+- [https://www.youtube.com/@TonyChoppers25](https://www.youtube.com/@TonyChoppers25)
+- [https://medium.com/@TonyChoppers25](https://medium.com/@TonyChoppers25)
+- [https://tonychoppers25.quora.com/](https://tonychoppers25.quora.com/)
